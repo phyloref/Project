@@ -14,4 +14,4 @@ XXX
 
 ## Questions?
 
-[Twitter @schneidenbach](https://twitter.com/gyzhang2)
+[Twitter @GuanyangZhang](https://twitter.com/gyzhang2)
